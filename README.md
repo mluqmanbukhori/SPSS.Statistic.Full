@@ -1,10 +1,10 @@
 # List SPSS Statistic Full Version
 
 ## SPSS Statistic 64 bit
-* [Download versi 26.0](https://drive.google.com/file/d/1014o3i2CNU-yf5SWmpCcTl7j5d9Rgmqa/view?usp=sharing)
+* [Download versi 26.0](https://drive.google.com/file/d/1014o3i2CNU-yf5SWmpCcTl7j5d9Rgmqa/view?usp=sharing) (banned oleh google)
 
 ## SPSS Statistic 32 bit
-* [Download versi 26.0](https://drive.google.com/file/d/10IJ3eIj6Fej_yuOXL5RxSg2vraQRe-sz/view?usp=sharing)
+* [Download versi 26.0](https://drive.google.com/file/d/10IJ3eIj6Fej_yuOXL5RxSg2vraQRe-sz/view?usp=sharing) (banned oleh google)
 
 # Kontribusi | Mau bertanya?
 Jangan lupa follow media Sosial kami <br>
